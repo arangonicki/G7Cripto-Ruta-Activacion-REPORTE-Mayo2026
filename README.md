@@ -1,0 +1,1 @@
+# G7Cripto-Ruta-Activacion-REPORTE-Mayo2026
